@@ -7,5 +7,4 @@ I'm ᴛʀᴀɴꜱꜰᴇᴍ ᴀɴᴅ ʟᴇꜱʙɪᴀɴ , missgendering as a mista
 Calling me slurs and swear words , just . . . 𝙒𝙝𝙖𝙩'𝙨 𝙩𝙝𝙚 𝙥𝙪𝙧𝙥𝙤𝙨𝙚 𝙤𝙛 𝙞𝙩? (unless friend, since they joke alot with that)
 Basic dni criteria
 𝙁𝙊𝙍𝙎𝘼𝙆𝙀𝙉 𝙁𝘼𝙉𝙎 𝙁𝙊𝙍𝙎𝘼𝙆𝙀𝙉 𝙁𝘼𝙉𝙎 𝙁𝙊𝙍𝙎𝘼𝙆𝙀𝙉 𝙁𝘼𝙉𝙎 𝙁𝙊𝙍𝙎𝘼𝙆𝙀𝙉 𝙁𝘼𝙉𝙎. (unless you nice hi hello)
-
 ## thats it bye adios
