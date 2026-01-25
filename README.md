@@ -12,4 +12,4 @@
 
 [c00l strawpage](https://c00lfioso.straw.page/) | 6 or 7 boii | [c00l atabook](https://bobette-carolynne.atabook.org/)
 
-how do i put the trans blinkie in there ples fork thi
+         i LOVE mafioso x coolkid you could tell
